@@ -76,5 +76,5 @@
 | ---- | ------ | ------- | ------- | ------- | -------- |
 | 价格 | ￥12.9  | ￥25.9  | ￥38.9    | ￥51.9  | ￥103.9   |
 
-[点击访问八戒机场](https:/bajie.pro/register?aff=OpjHo2xr)
+[点击访问八戒机场](https://bajie.pro/register?aff=OpjHo2xr)
 
