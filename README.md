@@ -10,7 +10,13 @@
 
 ### 一、魔戒机场
 
-最新地址:[mojie.host](https://mojie.host/register?aff=1VlZXWVA)
+最新地址:
+
+[魔戒机场官网](https://mojie.host/register?aff=1VlZXWVA)
+
+[魔戒官网备用地址1](https://mojie.co/register?aff=DCmnZB0B)
+
+[魔戒官网备用地址2](https://mojie.app/register?aff=DCmnZB0B)
 
 :star::star::star:老牌机场，推荐
 
@@ -45,7 +51,11 @@
 
 :star::star::star:老牌机场，推荐
 
-最新地址：[bajie.pro](https://bajie.pro/register?aff=OpjHo2xr)
+最新地址：
+
+[八戒机场官网](https://bajie.pro/register?aff=OpjHo2xr)
+
+[八戒官网备用地址](https://bajie.la/register?aff=A6pAEaJq)
 
 > 说八戒机场可能不知道，但是提魔戒机场，估计知道的人就很多了。魔戒是按流量计费的机场，看TG里的用户数就已经超过1.5w了，实际用户只会更多。而八戒机场呢，可以说是魔戒机场的升级版。八戒机场不光是有魔戒的流量包，也推出了月套餐，而且线路全部升级为IPLC/IEPL专线，在速度和稳定性上相较魔戒还是要高一些的。
 
