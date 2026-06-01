@@ -1,4 +1,4 @@
-# 2026年5月机场推荐
+# 2026年6月机场推荐
 
 ## 前言
 
@@ -53,7 +53,7 @@
 
 最新地址：
 
-[八戒机场官网](https://bajie.pro/register?aff=OpjHo2xr)
+[八戒机场官网](https://bajie666.net/register?aff=OpjHo2xr)
 
 [八戒官网备用地址](https://bajie.la/register?aff=A6pAEaJq)
 
@@ -86,5 +86,5 @@
 | ---- | ------ | ------- | ------- | ------- | -------- |
 | 价格 | ￥12.9  | ￥25.9  | ￥38.9    | ￥51.9  | ￥103.9   |
 
-[点击访问八戒机场](https://bajie.pro/register?aff=OpjHo2xr)
+[点击访问八戒机场](https://bajie666.net/register?aff=OpjHo2xr)
 
