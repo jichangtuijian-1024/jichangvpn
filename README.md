@@ -12,11 +12,11 @@
 
 最新地址:
 
-[魔戒机场官网](https://mojie.host/register?aff=1VlZXWVA)
+[魔戒机场官网](https://74.82.196.10:8000/register?aff=1VlZXWVA)
 
-[魔戒官网备用地址1](https://mojie.co/register?aff=DCmnZB0B)
+[魔戒官网备用地址1](https://43.129.207.58:800/register?aff=DCmnZB0B)
 
-[魔戒官网备用地址2](https://mojie.app/register?aff=DCmnZB0B)
+[魔戒官网备用地址2](https://47.112.97.173:8000/register?aff=DCmnZB0B)
 
 :star::star::star:老牌机场，推荐
 
@@ -51,7 +51,7 @@
 | 价格    | ￥19.9 | ￥29.9 | ￥52   | ￥85   | ￥179 | ￥330 | ￥500  | ￥888 |
 | 1GB价格 | ￥0.15 | ￥0.14 | ￥0.12 | ￥0.11 | 0.10  | 0.09  | 0.09   | 0.08  |
 
-[点击访问魔戒机场](https:/mojie.host/register?aff=1VlZXWVA)
+[点击访问魔戒机场](https://74.82.196.10:8000/register?aff=1VlZXWVA)
 
 ### 二、八戒机场
 
